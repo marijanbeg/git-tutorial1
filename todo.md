@@ -3,5 +3,5 @@
 - Make tea
 - Finish the report
 - Schedule team meeting
-- Chill with friends
+- Chill on my own
 - Read a book
