@@ -1,0 +1,5 @@
+- Water the plants
+- Reply to emails
+- Make coffee
+- Finish the report
+- Schedule team meeting
